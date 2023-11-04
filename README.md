@@ -1,0 +1,2 @@
+# artificialconsulting.github.io
+girişgen
